@@ -1,4 +1,3 @@
 # KubKrzOsk
 
-:)
-ddd
+:) :)
